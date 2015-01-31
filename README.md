@@ -14,3 +14,4 @@ gauarantee from the slums
 trade it all, against all appropriate ages
 x-files recomended worthy to alabys
 heir of lock n load 
+comptons piece youngster's days
