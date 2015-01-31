@@ -10,10 +10,12 @@ hug a survior
 save the world, reach over fear, earn a vitamin
 tears of admiration
 figured out from a thought
-gauarantee from the slums
-trade it all, against all appropriate ages
-x-files recomended worthy to alabys
-heir of lock n load 
-comptons piece youngster's days
-work hard, play hard, stay hard
-pizza siding with a chair and a beer
+gauarantee from the jump
+adredaline from quantium kilometers
+capital of california 
+accused of being a madman
+first comunion 
+vilantile, crafty congress
+tarnish a name
+standing, believing, survior
+
