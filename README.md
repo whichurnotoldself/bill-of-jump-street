@@ -19,3 +19,10 @@ vilantile, crafty congress
 tarnish a name
 standing, believing, survior
 diary of a whimpy kid
+evolving from accusations
+burried by malarky
+former title holder
+willingness,independeacy,longfellow,leader amiration
+specializing redundence for my country
+factual even in nature
+alliance of self reliance
