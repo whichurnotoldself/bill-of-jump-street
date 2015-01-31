@@ -13,3 +13,4 @@ figured out from a thought
 gauarantee from the slums
 trade it all, against all appropriate ages
 x-files recomended worthy to alabys
+heir of lock n load 
